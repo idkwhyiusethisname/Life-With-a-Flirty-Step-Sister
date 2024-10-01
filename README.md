@@ -24,4 +24,4 @@
 - Enjoy eiei
 
 ---------------------------------------
-Contact : ([telegram](https://t.me/cobblestonez)
+Contact : [telegram](https://t.me/cobblestonez)
